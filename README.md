@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @FeltonG
+- I would like to learn  programming and  saw  codes  the  people
+- I like to learn about technology 
